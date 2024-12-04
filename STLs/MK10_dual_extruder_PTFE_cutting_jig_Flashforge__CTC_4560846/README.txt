@@ -1,0 +1,1 @@
+MK10 dual extruder PTFE cutting jig Flashforge, CTC by J40YKE on Thingiverse: https://www.thingiverse.com/thing:4560846
